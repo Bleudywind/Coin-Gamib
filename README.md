@@ -1,1 +1,1 @@
-# Coin-Gamib
+Ouais ouais j'adore les README mdr allez salut
